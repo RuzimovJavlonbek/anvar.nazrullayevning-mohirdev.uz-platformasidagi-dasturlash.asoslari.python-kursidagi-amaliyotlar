@@ -1,0 +1,1 @@
+# anvar.nazrullayevning-mohirdev.uz-platformasidagi-dasturlash.asoslari.python-kursidagi-amaliyotlar
